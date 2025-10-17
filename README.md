@@ -1,1 +1,0 @@
-# icaro_192amigo
